@@ -15,6 +15,5 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: ...
 -->
 
-![](http://i.imgur.com/60bts.gif)
+![](https://i.makeagif.com/media/1-07-2018/0PmEAx.gif)
 
-![image](https://github.com/lberatl/lberatl/assets/75970161/39d87247-dc11-41c7-b3f7-e3f365a52a14)
