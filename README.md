@@ -15,3 +15,6 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: ...
 -->
 ![image](https://github.com/lberatl/lberatl/assets/75970161/f7578234-4dbb-4271-be39-6e7f5336f45c)
+
+
+![](https://tenor.com/nVADPZIHRmX.gif)
