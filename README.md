@@ -15,6 +15,8 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: ...
 -->
 
-![](https://i.makeagif.com/media/1-07-2018/0PmEAx.gif)
+![gif](https://i.makeagif.com/media/1-07-2018/0PmEAx.gif)
 
-![Alt text](https://i.makeagif.com/media/1-07-2018/0PmEAx.gif)
+
+
+![](https://tenor.com/tr/view/poseidon-god-of-war-gif-20460216)
